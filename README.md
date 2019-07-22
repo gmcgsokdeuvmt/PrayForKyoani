@@ -12,7 +12,10 @@
 
 ## WORKS of Kyoto Animation
 
-cited from http://www.kyotoanimation.co.jp/works/
+cited from 
+
+- http://www.kyotoanimation.co.jp/works/
+- https://seesaawiki.jp/w/radioi_34/
 
 ### 2020年
 
@@ -29,6 +32,7 @@ cited from http://www.kyotoanimation.co.jp/works/
 - Free!-Dive to the Future-
 - リズと青い鳥
 - ヴァイオレット・エヴァーガーデン
+	- [staff](https://seesaawiki.jp/w/radioi_34/d/%a5%f4%a5%a1%a5%a4%a5%aa%a5%ec%a5%c3%a5%c8%a1%a6%a5%a8%a5%f4%a5%a1%a1%bc%a5%ac%a1%bc%a5%c7%a5%f3)
 - 映画 中二病でも恋がしたい！ -Take On Me-
 
 ### 2017年
