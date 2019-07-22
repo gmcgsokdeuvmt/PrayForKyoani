@@ -8,6 +8,11 @@
 
 ## Movies by Fans
 
-- [Search "PrayForKyoani" in youtube](https://www.youtube.com/results?search_query=PrayForKyoani)
+- [Search "PrayForKyoani" in Youtube](https://www.youtube.com/results?search_query=PrayForKyoani)
 
 ## WORKS of Kyoto Animation
+
+## Related Repositories
+
+- [prayforkyoani-jp/prayforkyoani-jp](https://github.com/prayforkyoani-jp/prayforkyoani-jp)
+  - https://prayforkyoani.jp
