@@ -10,7 +10,9 @@
 
 - [Search "PrayForKyoani" in Youtube](https://www.youtube.com/results?search_query=PrayForKyoani)
 
-## [WORKS of Kyoto Animation](http://www.kyotoanimation.co.jp/works/)
+## WORKS of Kyoto Animation
+
+cited from http://www.kyotoanimation.co.jp/works/
 
 ### 2020年
 
