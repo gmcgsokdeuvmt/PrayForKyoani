@@ -29,11 +29,15 @@ cited from
 ### 2018年
 
 - ツルネ ―風舞高校弓道部―
+	- [staff](https://seesaawiki.jp/w/radioi_34/d/%a5%c4%a5%eb%a5%cd%20%a1%bd%c9%f7%c9%f1%b9%e2%b9%bb%b5%dd%c6%bb%c9%f4%a1%bd)
 - Free!-Dive to the Future-
+	- [staff](https://seesaawiki.jp/w/radioi_34/d/Free%21%20-Dive%20to%20the%20Future-)
 - リズと青い鳥
+	- [staff](https://seesaawiki.jp/w/radioi_34/d/%a5%ea%a5%ba%a4%c8%c0%c4%a4%a4%c4%bb)
 - ヴァイオレット・エヴァーガーデン
 	- [staff](https://seesaawiki.jp/w/radioi_34/d/%a5%f4%a5%a1%a5%a4%a5%aa%a5%ec%a5%c3%a5%c8%a1%a6%a5%a8%a5%f4%a5%a1%a1%bc%a5%ac%a1%bc%a5%c7%a5%f3)
 - 映画 中二病でも恋がしたい！ -Take On Me-
+	- [staff](https://seesaawiki.jp/w/radioi_34/d/%b1%c7%b2%e8%20%c3%e6%c6%f3%c9%c2%a4%c7%a4%e2%ce%f8%a4%ac%a4%b7%a4%bf%a4%a4%21%20-Take%20On%20Me-)
 
 ### 2017年
 
