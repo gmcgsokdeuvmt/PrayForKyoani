@@ -2,11 +2,11 @@
 
 <a href="https://twitter.com/intent/tweet?button_hashtag=PrayForKyoani&ref_src=twsrc%5Etfw" class="twitter-hashtag-button" data-show-count="false">Tweet #PrayForKyoani</a>
 
-## Ilusstrations by fans
+## Ilusstrations by Fans
 
 - [Search "PrayForKyoani" in Pixiv](https://www.pixiv.net/search.php?s_mode=s_tag_full&word=PrayForKyoani)
 
-## Movies by fans
+## Movies by Fans
 
 - [Search "PrayForKyoani" in youtube](https://www.youtube.com/results?search_query=PrayForKyoani)
 
