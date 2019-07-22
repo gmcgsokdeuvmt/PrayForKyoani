@@ -10,4 +10,4 @@
 
 - [Search "PrayForKyoani" in youtube](https://www.youtube.com/results?search_query=PrayForKyoani)
 
-## Kyoani WORKS
+## WORKS of Kyoto Animation
