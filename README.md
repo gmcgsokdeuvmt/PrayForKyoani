@@ -12,7 +12,7 @@
 
 ## WORKS of Kyoto Animation
 
-cited from 
+Cited from 
 
 - http://www.kyotoanimation.co.jp/works/
 - https://seesaawiki.jp/w/radioi_34/
